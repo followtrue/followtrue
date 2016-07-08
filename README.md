@@ -1,4 +1,4 @@
-# wangwen0308
+# followtrue
 wow!here,you can learn more about computer,
 follow me ,I will give you power and immortal.
 believe me ,
